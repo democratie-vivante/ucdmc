@@ -22,10 +22,13 @@ Il est avancé que « 60% des communes de Rennes Métropole fonctionnent en liai
 
 **Des retours contrastés :**
 De nombreux témoignages font état de repas moins appréciés en liaison froide, qui reste pourtant la solution la plus probable avec les prestataires envisagés.
+
 **Qualité gustative :**
 Les experts s’accordent à dire que la cuisine sur place et la liaison chaude sont équivalentes en termes de goût, contrairement à la liaison froide, souvent critiquée.
+
 **Portion mal adaptée :**
 Le modèle en liaison est très standardisé les portions sont mal adaptées aux besoins particuliers de chaque enfant - trop ou trop peu selon les cas. Ce qui peut entrainer gaspillage ou sous nutrition.
+
 **Gaspillage alimentaiare :**
 Le modèle en cuisine centrale, doit sur produire oiur satisfaire la demande, d'autant plus en liaison froide, ou cela est préparé encore plus en avance.
 Les portions ne peuvent pas être adapté aux besoin et au goûts des enfants. Et la sur productin ne peut pas être réutilisée sur palce.
