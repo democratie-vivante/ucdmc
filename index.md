@@ -1,4 +1,4 @@
-# Rénovation de la Cantine Scolaire : Questions et Réflexions Citoyennes
+# Rénovation de la Cantine Scolaire de Montgermont : Questions et Réflexions Citoyennes
 ## La liaison froide un modèle qui ne fait plus ses preuves
 La mairie propose de rénover la cantine scolaire en supprimant la cuisine sur place, au profit d’un système de repas en liaison (chaude ou froide). Pourtant, ce modèle est de plus en plus remis en question dans de nombreuses communes.
 
@@ -11,7 +11,7 @@ Plusieurs cantines ayant externalisé la préparation des repas ont réintégré
 - "Expérimentation de l'Ecole Maryse Bastié à Romainville qui est passé à une cuisine intégrée à la place d'une liaison froide."
 
 ## Quelle place pour les regrets ?
-Malgré nos interpellations et l’expression de nos inquiétudes, l’équipe municipale semble poursuivre le projet sans envisager de reconsidérer ses choix.
+Malgré les interpellations et l’expression de nos inquiétudes des parents d'élèves, l’équipe municipale semble poursuivre le projet sans envisager de reconsidérer ses choix.
 
 **Et après ?**
 Lorsque nos enfants profiteront des nouveaux bâtiments, mais sans cuisine sur place, et si les repas s’avèrent décevants, pourra-t-on revenir en arrière ?
