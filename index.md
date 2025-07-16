@@ -9,7 +9,7 @@ De nombreuses collectivités, après avoir expérimenté la liaison froide, choi
 Plusieurs cantines ayant externalisé la préparation des repas ont réintégré leur cuisine, face à des retours négatifs sur la qualité gustative et la satisfaction des enfants.
 - "Le restaurant scolaire de La Noë-Blanche est municipal et a mis en place une nouvelle organisation depuis septembre 2023, avec des repas cuisinés sur place par un cuisinier utilisant des produits locaux et/ou bio".
 - "Expérimentation de l'Ecole Maryse Bastié à Romainville qui est passé à une cuisine intégrée à la place d'une liaison froide."
-- 
+
 **D'autres exemples** prouvent qu'il est possible de s'orienter vers une préparation et un approsionnement majoritairement local.
 - [Restaurant scolaire d'Augan]([url](https://www.ouest-france.fr/bretagne/augan-56800/pour-les-enfants-et-les-aines-le-restaurant-scolaire-daugan-ouvrira-a-la-rentree-2025-608dc7fc-9f76-11ef-8e2f-edcbead999f8)).
 - [Restaurant scolaire de Livré-sur-Changeon]([url](https://www.ouest-france.fr/bretagne/livre-sur-changeon-35450/dans-ce-restaurant-scolaire-dille-et-vilaine-ce-chef-nourrit-370-enfants-avec-des-produits-locaux-464d21f6-6d5a-11ef-86dd-614ac4f33f5a)).
