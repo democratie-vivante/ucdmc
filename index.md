@@ -1,5 +1,5 @@
 # Rénovation de la Cantine Scolaire de Montgermont : Questions et Réflexions Citoyennes
-Suite à la parution du magazine municipale Autour de la Motte de Juillet 2025, nous trouvons nécessaire d'apporter des éléments de lecture concernant le projet de rénovation du restaurant municipal ansi que des questionnements qui restent sans réponse de la part de la municipalité.
+Suite à la parution du magazine municipal Autour de la Motte de Juillet 2025, nous trouvons nécessaire d'apporter des éléments de lecture concernant le projet de rénovation du restaurant municipal ansi que des questionnements qui restent sans réponse de la part de la municipalité.
 
 ## La liaison froide un modèle qui ne fait plus ses preuves
 La mairie propose de rénover la cantine scolaire en supprimant la cuisine sur place, au profit d’un système de repas en liaison (chaude ou froide). Pourtant, ce modèle est de plus en plus remis en question dans de nombreuses communes.
